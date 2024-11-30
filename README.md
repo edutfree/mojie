@@ -4,11 +4,9 @@
 
 永久官网：[魔戒.com](https://xuv.cc/out/mojie)
 
-地址1：[https://mojie.app](https://mojie.app/#/register?code=mWmfZf3V)
+地址1：[https://mojie.kim](https://mojie.kim/#/register?code=mWmfZf3V)
 
 地址2：[https://mojie.co](https://mojie.co/#/register?code=mWmfZf3V)
-
-地址3：[https://mojie.red](https://mojie.red/#/register?code=mWmfZf3V)
 
 [![魔戒机场官网地址](mojie_20240904_150607.png)](https://xuv.cc/out/mojie)
 
