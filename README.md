@@ -8,8 +8,6 @@
 
 地址2：[https://mojie.co](https://mojie.co/#/register?code=mWmfZf3V)
 
-[![魔戒官网地址](mojie_20240904_150607.png)](https://xuv.cc/out/mojie)
-
 **温馨提示：任何服务均有跑路风险，请自行注意防范！**
 
 **本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
